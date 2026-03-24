@@ -1,1 +1,1 @@
-# Digital Humaniroa, tekstanalyse og Kinastudier
+# Digital Humaniora, tekstanalyse og Kinastudier
