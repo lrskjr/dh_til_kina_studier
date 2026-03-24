@@ -1,1 +1,1 @@
-# dh_til_kina_studier
+# Digital Humaniroa, tekstanalyse og Kinastudier
